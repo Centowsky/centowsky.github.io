@@ -1,3 +1,3 @@
 # centowsky.github.io
 
-##Kiedys cos tu bedzie :)
+Kiedys cos tu bedzie :)
